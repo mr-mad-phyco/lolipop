@@ -53,3 +53,4 @@ _Asrafi Abir_ - [Messenger](facebook/ashrafiabir04)
 
 # Note:
 Don’t use this tool for illigal purposes 
+only for educational purposes
